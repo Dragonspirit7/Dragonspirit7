@@ -2,7 +2,7 @@
 - 👀 I’m interested in Advanturing and reading book of fantasy and ancient history
 - 🌱 I’m currently learning Devops
 - 💞️ I’m looking to collaborate on new technologies for carrer growth and hone my skills and knowledge.
-- 😄 Pronouns: ...
+- 😄 Pronouns: Po: The Dragon Warrior
 - ⚡ Fun fact: ...
 
 <!---
